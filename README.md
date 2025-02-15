@@ -8,3 +8,5 @@
 
 - [Hitesh Choudhary Channel](https://www.youtube.com/watch?v=mqJIGIxRkEs)
 - [Anurag Singh Channel](https://www.youtube.com/watch?v=1akLzbfK0XU)
+- [CodeWithHarry Channel](https://www.youtube.com/playlist?list=PLu0W_9lII9agwhy658ZPA0MTStKUJTWPi)
+- [Kunal Kushwaha Channel](https://www.youtube.com/watch?v=apGV9Kg7ics)
